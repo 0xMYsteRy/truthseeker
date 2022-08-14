@@ -1,5 +1,5 @@
 <audio controls  loop autoplay>
-  <source type="audio/mp3" src="http://altered-states.net/music.php?trk=/barry/newsletter463/Spirits.mp3"></source>
+  <source type="audio/mp3" src="https://www.youtube.com/watch?v=EBSegrHpreY"></source>
 </audio>
 
 # Secret of the universe
