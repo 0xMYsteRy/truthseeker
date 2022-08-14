@@ -1,4 +1,4 @@
-<audio controls="controls">
+<audio controls  loop autoplay>
   <source type="audio/mp3" src="http://altered-states.net/music.php?trk=/barry/newsletter463/Spirits.mp3"></source>
 </audio>
 
@@ -27,7 +27,11 @@ body of an element according to its particular vibration. Crystals,
 plants, and human beings are music that has taken on visible form.
 
 
+## Life - Energy - Matter
 
+Everything vibrates. Life is vibration. So is mind. So is matter. 
+
+## Desired Reality Shifting
 
 
 ## References
