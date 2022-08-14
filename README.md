@@ -28,7 +28,7 @@ Crystals collectively form a body of an element according to its particular vibr
 Crystals, plants, and human beings are music that has taken on visible form.  <br>
 
 ## Muladhara Chakra (Root chakra)
-Before ascending, you must grounding.
+Before ascending, you must grounding.  <br>
 Your mind, body, and spirit are interconnected. <br>
 Work on the root chakra 1st before working on other chakra.  <br>
 When the Muladhara Chakra is blocked and imbalanced, it can cause mental stress which is visible through one’s physicality.  <br>
@@ -47,6 +47,7 @@ A balance Muladhara Chakra person will have:
 * Emotional control
 * Self-sufficiency
 
+### 12 Chakra
 ```bash
     1st Chakra: Earth Star Chakra
     2nd Chakra: Root Chakra 
