@@ -4,8 +4,7 @@
 
 # Secret of the universe
 "Everything that can be invented, has been invented" - Charles H. Duell - 1899 <br>
-I have been the researching the art of meditation and secret ancient knowledge for the past years of my life and how do all the past dots connect to each other
-All the things i know points to singularity, the universe of oneness. The journey goes on, so i decide to keep a quick note here. I would like to send my gratitude to the universe for connecting us here
+I have been the researching the art of meditation and secret ancient knowledge for the past years of my life and how do all the past dots connect to each other. All the things i know points to singularity, the universe of oneness. The journey goes on, so i decide to keep a quick note here. I would like to send my gratitude to the universe for connecting us here
 
 ## Everything is energy
 Quantum physics describes the universe as nothing more than vibrating strings of energy [1] <br>
