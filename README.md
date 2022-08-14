@@ -51,6 +51,7 @@ A balance Muladhara Chakra person will have:
 Located in the center of the forehead, it acts as the individual’s center of wisdom, conscience, and higher consciousness<br>
 
 When you gain enough exp, you will unlock the 6th sense
+* Positive self-talk (detach negative feelings attached to your self-talks then it's fine.)
 * Intuition, vision, and inner wisdom
 * Authentic
 * Think clearly, see things from multi perspectives and sense their inner guidance. (differ from overthinking)
@@ -82,3 +83,4 @@ It also could be your family members
 
 ## References
 [1] https://www.theguardian.com/news/2015/nov/04/relativity-quantum-mechanics-universe-physicists
+[2] 
