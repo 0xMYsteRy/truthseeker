@@ -30,7 +30,7 @@ plants, and human beings are music that has taken on visible form.
 ## Life - Energy - Matter
 
 Everything vibrates. Life is vibration. So is mind. So is matter. 
-
+A
 ## Desired Reality Shifting
 
 
