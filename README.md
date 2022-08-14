@@ -26,13 +26,49 @@ crystals are build upon the expression of vibration. Crystals collectively form 
 body of an element according to its particular vibration. Crystals,
 plants, and human beings are music that has taken on visible form.
 
+## Muladhara Chakra (Root chakra)
+Before ascending, you must grounding.
+Your mind, body, and spirit are interconnected. <br>
+Work on the root chakra 1st before working on other chakra.  <br>
+When the Muladhara Chakra is blocked and imbalanced, it can cause mental stress which is visible through one’s physicality.  <br>
+These symtoms, for years of observance, including:  <br>
+* Feelings of lethargy or depression
+* Feelings of being disconnected and isolated
+* Insecure, panic, anxiety, anger issues
+* Digestive disorders
+* Unexplained aches and pains in the body
+* Insomnia
+* You are always tired
+
+A balance Muladhara Chakra person will have:
+* Security
+* Stability
+* Emotional control
+* Self-sufficiency
+
+```bash
+    1st Chakra: Earth Star Chakra
+    2nd Chakra: Root Chakra 
+    3rd Chakra: Sacral Chakra 
+    4th Chakra: Solar Plexus Chakra
+    5th Chakra: Heart Chakra
+    6th Chakra: Throat Chakra
+    7th Chakra: Third Eye Chakra
+    8th Chakra: Crown Chakra
+    9th Chakra: Soul Star Chakra
+    10th Chakra: Universal Chakra 
+    11th Chakra: Galactic Chakra
+    12th Chakra: Divine Gateway Chakra
+```
 
 ## Life - Energy - Matter
 
 Everything vibrates. Life is vibration. So is mind. So is matter. 
-A
+
 ## Desired Reality Shifting
 
+Use with cautious, one thing you must understand that we are all master of manifester. So when you vibrational frequency change, you leave your comfort zone, your social circle change, expected to lose people and gain new people in life. Those who does not match your frequency will not stay with you. Embrace it.
+It also could be your family members
 
 ## References
 [1] https://www.theguardian.com/news/2015/nov/04/relativity-quantum-mechanics-universe-physicists
