@@ -35,7 +35,7 @@ When the Muladhara Chakra is blocked and imbalanced, it can cause mental stress 
 These symtoms, for years of observance, including:  <br>
 * Feelings of lethargy or depression
 * Feelings of being disconnected and isolated
-* Insecure, panic, anxiety, anger issues
+* Insecure, wories, panic, anxiety, anger 
 * Digestive disorders
 * Unexplained aches and pains in the body
 * Insomnia
@@ -46,6 +46,14 @@ A balance Muladhara Chakra person will have:
 * Stability
 * Emotional control
 * Self-sufficiency
+
+## Ajna Chakra
+Located in the center of the forehead, it acts as the individual’s center of wisdom, conscience, and higher consciousness<br>
+
+When you gain enough exp, you will unlock the 6th sense
+* Intuition, vision, and inner wisdom
+* Authentic
+* Think clearly, see things from multi perspectives and sense their inner guidance. (differ from overthinking)
 
 ### 12 Chakra
 ```bash
