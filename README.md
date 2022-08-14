@@ -4,7 +4,7 @@
 
 # Secret of the universe
 "Everything that can be invented, has been invented" - Charles H. Duell - 1899 <br>
-I have been the researching the art of meditation and secret ancient knowledge for the past years of my life. I questioned my existance and how to connect  all the dots to present. All the things i know points to singularity, the universe of oneness. The journey goes on, so i decide to keep a quick note here. I would like to send my gratitude to the universe for connecting us here  <br>
+I have been the researching the art of meditation, sacred geometry and secret ancient knowledge for the past years of my life. I questioned my existence and how to connect all the dots to present. All the things i know points to singularity, the universe of oneness. The journey goes on, so i decide to keep a quick note here. I would like to send my gratitude to the universe for connecting us here  <br>
 
 ## Everything is energy
 Quantum physics describes the universe as nothing more than vibrating strings of energy [1] <br>
@@ -12,10 +12,11 @@ What you focus on, what you put your energy in, with enough intention, will beco
 
 ## Everything in frequencies
 
-The law of nature that states everything has a vibration. Chemistry classes taught me about atoms, and that everything is made up of atoms. <br>
+The law of nature that states everything has a vibration. Chemistry classes taught me about atoms, and that everything is made up of atoms. 
 These atoms are in a constant state of motion, and depending on the speed of these atoms, things are appear as a solid, liquid, or gas. <br>
 Sound is also a vibration and so are thoughts. <br>
-Everything that manifests itself in your life is there because it matches the vibration from your thoughts. <br>
+Everything that manifests itself in your life is there because it <b> align </b> the vibration from your thoughts. <br>
+As soon as you understand it, you are able to manifest / attract everything with your higher-self
 
 Thought - Thinks of this like a radio wave, some people will develope their intuition (6th sense) better than others. <br>
 Some are better at transmitting, other are better of receiving. So you must be very careful of transmitting and allowing other's thought go inside your head.
