@@ -1,3 +1,7 @@
+<audio controls="controls">
+  <source type="audio/mp3" src="http://altered-states.net/music.php?trk=/barry/newsletter463/Spirits.mp3"></source>
+</audio>
+
 # Secret of the universe
 "Everything that can be invented, has been invented" - Charles H. Duell - 1899 <br>
 I have been the researching the art of meditation and secret ancient knowledge for the past years of my life and how do all the past dots connect to each other
