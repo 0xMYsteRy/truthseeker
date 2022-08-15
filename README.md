@@ -79,9 +79,8 @@ Everything vibrates. Life is vibration. So is mind. So is matter.
 
 ## Desired Reality Shifting
 
-Use with cautious, one thing you must understand that we are all master of manifester. So when you vibrational frequency change, you leave your comfort zone, your social circle change, expected to lose people and gain new people in life. Those who does not match your frequency will not stay with you. It also could be your family members. Embrace the discomfort, embrace the changes.
+Use with extreme cautious, one thing you must understand that we are all master manifester. So when your vibrational frequency change, you leave your comfort zone, your social circle change, you expected to lose people and gain new people in life. That's perfectly fine. Without leaving the comfort zone, there is no growth. Those who does not match your vibrational frequency will not stay with you. It also could be your family members. Embrace the discomfort, embrace the changes.
 
 
 ## References
 [1] https://www.theguardian.com/news/2015/nov/04/relativity-quantum-mechanics-universe-physicists
-[2] 
