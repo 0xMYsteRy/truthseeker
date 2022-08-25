@@ -82,12 +82,13 @@ Everything vibrates. Life is vibration. So is mind. So is matter.
 Use with extreme cautious, one thing you must understand that we are all master manifester. So when your vibrational frequency change, you leave your comfort zone, your social circle change, you expected to lose people and gain new people in life. That's perfectly fine. Without leaving the comfort zone, there is no growth. Those who does not match your vibrational frequency will not stay with you. It also could be your family members. Embrace the discomfort, embrace the changes.
 
 ## Near Death Experience (NDE)
-In 2024, the world banking system collapse leading everyone able to transfer money throught crypto currencies. Banks over the world announce that will no longer print money, bring the new system to the world
-In 2028, Donald Trump succesfully re-elected for the 2nd term and does away with the world banking system, bring back paper money to the US
-In 2061, U.S splits into two contries: United Northern State and United Southern State. No civil war is fought.
-In 2063, both new countries are invaded by China, forcing those two to join Canada and Mexico
-From 2028 -2063, stablity time in the world. Then China invade and the world in wars for 7 years
-
+In 2024, the world banking system collapse leading everyone able to transfer money throught crypto currencies. Banks over the world announce that will no longer print money, bring the new system to the world. <br>
+In 2028, Donald Trump succesfully re-elected for the 2nd term and does away with the world banking system, bring back paper money to the US <br>
+In 2061, U.S splits into two contries: United Northern State and United Southern State. No civil war is fought.<br>
+In 2063, both new countries are invaded by China, forcing those two to join Canada and Mexico <br>
+From 2028 -2063, stablity time in the world. Then China invade and the world in wars for 7 years <br>
+AFter the year 2070, my contracts with the world ends, thus i could not see anyfuther
+ 
 
 ## References
 [1] https://www.theguardian.com/news/2015/nov/04/relativity-quantum-mechanics-universe-physicists
