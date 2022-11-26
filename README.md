@@ -90,5 +90,11 @@ From 2028 -2063, stablity time in the world. Then China invade and the world in 
 AFter the year 2070, my contracts with the world ends, thus i could not see anyfuther
  
 
-## References
-[1] https://www.theguardian.com/news/2015/nov/04/relativity-quantum-mechanics-universe-physicists
+## Old souls
+There is a special kind of person in this world who is often misunderstood. These people tend to be the loners, the free spirits, the innocent lovers. They see the world for all they can – and should be – although the world rarely sees them... 
+They are the old souls, the dreamers, the people in tune with life, so intuitive of emotions that they frighten us. They frighten us not because of who they are, but because of who we are not, what we lack.
+Ancient souls reach depths we cannot understand. They have a connection with God, with the Universe, with nature, and that's why they are the people who will change the world.
+We often feel inferior, as if we have to strive to stay remotely close to their level, to be worthy of their love.
+It takes a confident person to love an old soul. But it's worth it. It will change your life.
+They are romantic, they are loyal, they help us grow, they are not materialistic, they understand the deep connections in life, they are grateful, they are examples of bravery.
+They walk the most painful roads of this life, and yet somehow they find the courage to smile. Of being selfless. Support others. Loving an old soul and being loved by it is a gift from the Universe. 
